@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @iharsh3289
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning python
+- 💞️ I’m Currently Studying B.tech In Computer Engineering At J. C. Bose University Of Science And Technology , YMCA , faridabad
+- 📫 Email = Hgarg5492@gmail.com
+- 📫 Facebook =  www.facebook.com/HarshGargJi1
+- 📫 Instagram = www.instagram.com/iharsh_garg
+- 📫 linkedin = www.linkedin.com/in/1harsh
+- 📫 Twitter = www.twitter.com/Harsh__Garg
